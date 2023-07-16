@@ -5,13 +5,13 @@
 
 - 👨‍💻 All of my projects are available at [https://ashiqbro.netlify.app/](https://ashiqbro.netlify.app/)
 
-- 📝 I regularly write articles on [https://www.facebook.com/profile.php?id=100094663415529](https://www.facebook.com/profile.php?id=100094663415529)
+- 📝 I regularly write articles on [https://www.facebook.com/profile.php?id=100094663415529](https://www.facebook.com/secretcode001.01/)
 
 - 💬 Ask me about **Web design or development**
 
 - 📫 How to reach me **nextdev0.002@gmail.com**
 
-- 📄 Know about my experiences [https://www.facebook.com/profile.php?id=100094663415529](https://www.facebook.com/profile.php?id=100094663415529)
+- 📄 Know about my experiences [https://www.facebook.com/profile.php?id=100094663415529](https://www.facebook.com/secretcode001.01/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
